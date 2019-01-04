@@ -1,4 +1,4 @@
-# How much do I lift?
+## How much do I lift?
 
 **50 pounds**
 
