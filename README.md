@@ -9,3 +9,7 @@
 ## What if I can't do them all?
 
 **Just stop there.**
+
+## How many sets do I do?
+
+Who said anything about sets?
