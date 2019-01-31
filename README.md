@@ -17,3 +17,7 @@ Who said anything about sets?
 ## Always before running
 
 No seriously, don't get tired and then try to lift heavy things.
+
+## Which days do I lift?
+
+Either Monday, Wednesday, Friday, or Tuesday, Thursday. One rest day between each lifting day.
