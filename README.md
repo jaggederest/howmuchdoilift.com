@@ -1,10 +1,10 @@
 ## How much do I lift?
 
-**50 pounds**
+**55 pounds**
 
 ## How many reps should I do?
 
-**10 warmup at 25 pounds** and **7 at 50 pounds**
+**10 warmup at 30 pounds** and **5 at 55 pounds**
 
 ## What if I can't do them all?
 
